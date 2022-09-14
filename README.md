@@ -1,2 +1,2 @@
 # E-commerce-Analysis of consumption profiles
-Учебный проект 
+Учебный проект &#127891; &#128722; 
